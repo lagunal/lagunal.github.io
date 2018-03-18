@@ -1,2 +1,0 @@
-# lagunal.github.io
-Portfolio 
